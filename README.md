@@ -1,1 +1,0 @@
-# ryanvoda.github.io
